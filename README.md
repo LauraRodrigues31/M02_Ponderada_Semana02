@@ -1,1 +1,0 @@
-# M02_Ponderada_Semana02
